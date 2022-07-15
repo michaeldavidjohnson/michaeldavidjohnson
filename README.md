@@ -23,9 +23,6 @@ https://user-images.githubusercontent.com/70021788/179196018-71915446-070d-47c6-
 
 
 
-https://user-images.githubusercontent.com/70021788/179200824-06021199-2fe2-4c14-ba3b-883758ddd842.mp4
-
-
 
 https://user-images.githubusercontent.com/70021788/179200828-ad85aa03-e59c-4892-b533-8050ba7a9d44.mp4
 
