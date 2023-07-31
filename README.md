@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+### Currently Reading:
+Advanced Mathematical Methods for Scientists and Engineers: Asymptotic Methods and Perturbation Theory
+
 <!--
 **michaeldavidjohnson/michaeldavidjohnson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
